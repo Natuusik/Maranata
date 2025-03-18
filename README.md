@@ -1,1 +1,1 @@
-# Maranata
+# Maranta
